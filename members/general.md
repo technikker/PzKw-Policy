@@ -13,12 +13,15 @@ Exceeding 4/10 toxicity
 NSFW content outside of #edgy-jokesmemes 
 Unauthorized advertising
 Spam
-Screaming/re-ing at @Skinnymutt24#5112 (for your safety, not his)
 
 **EXPLICITLY ALLOWED CONDUCT**
 Bad language - this is war~~chicken~~thunder, it makes us all angry from time to time
-Racism/discrimination in the context of banter
+Racism / discrimination / ism's in the context of banter
 
+
+R16 topics
+what consenting adults do is private - that means we don't want to hear about it. there are other communities for that.
+furthermore, bringing up R16 topics around minors, including in DMs, is prohibited (and in most countries illegal)
 
 
 bros before hoes
